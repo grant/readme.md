@@ -8,3 +8,4 @@ A consolidation of links about me
 - [twitter.com/granttimmerman](https://twitter.com/granttimmerman)
 - [github.com/grant](https://github.com/grant)
 - [fitbit.com/user/56TXP6](https://www.fitbit.com/user/56TXP6)
+- [venmo.com/grant-timmerman](https://www.venmo.com/grant-timmerman)
